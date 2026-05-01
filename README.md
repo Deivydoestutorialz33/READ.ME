@@ -10,6 +10,6 @@ $\text{\color{#dd9955} don't be mean to me or my friendz brah!!😡}$
 
 $\text{\color{#FFAA00} wip ok? ok.. huge moe fiction kin doubles intt<3}$
 
-$\text{\color{#FFAA00} iwc if your rude or hateful}$ 
+$\text{\color{#b41314} iwc if your rude or hateful}$ 
 
 $\text{\color{#555555} i've been getting really irritated easily lately zo iwec if my name says "upset" :D}$
