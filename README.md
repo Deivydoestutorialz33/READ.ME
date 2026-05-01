@@ -1,6 +1,12 @@
 # READ.ME
 
 
+<img src="https://giphy.com/stickers/golden-C4b6GwFKbYxK8" width="200" height="200" />
+
+
+
+
+
 $\text{\color{#B22222} Moe/vessel/rochas/user or nosoi}$\
 $\text{\color{#FFFAA0} idk how to program ts hep}$\
 $\text{\color{#6FC276} transmasc pls use my pronouns!! He/they}$\
