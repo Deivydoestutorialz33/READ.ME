@@ -1,8 +1,8 @@
 # READ.ME
 
 
-<img src="https://giphy.com/stickers/star-xSVQgqlSTMXYs" width="200" height="200" />
 
+[<img width="50" height="50" alt="image" src=" https://giphy.com/stickers/springtime-spring-flowers-daffodils-2ySis2q4RhunQ67ylt<]
 
 
 
