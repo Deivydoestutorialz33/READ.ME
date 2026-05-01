@@ -1,6 +1,6 @@
 # READ.ME
 
-<img src="path/to/your-star.gif" width="200" />
+<img src="path/to/your-star.gif" width="200" height="50"/>
 
 
 $\text{\color{#B22222} Moe/vessel/rochas/user or nosoi}$\
