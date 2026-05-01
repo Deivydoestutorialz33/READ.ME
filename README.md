@@ -1,5 +1,8 @@
 # READ.ME
 
+<img src="path/to/your-star.gif" width="200" />
+
+
 $\text{\color{#B22222} Moe/vessel/rochas/user or nosoi}$\
 $\text{\color{#FFFAA0} idk how to program ts hep}$\
 $\text{\color{#6FC276} transmasc pls use my pronouns!! He/they}$\
