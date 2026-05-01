@@ -1,7 +1,7 @@
 # READ.ME
 
 
-<img src="https://giphy.com/stickers/golden" width="2000" height="2000" />
+<img src="https://giphy.com/stickers/golden" width="200" height="200" />
 
 
 
