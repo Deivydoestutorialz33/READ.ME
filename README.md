@@ -2,9 +2,6 @@
 
 
 
-[<img width="50" height="50" alt="image" src=" https://giphy.com/stickers/springtime-spring-flowers-daffodils-2ySis2q4RhunQ67ylt<]
-
-
 
 
 $\text{\color{#B22222} Moe/vessel/rochas/user or nosoi}$\
